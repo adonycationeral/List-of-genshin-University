@@ -113,6 +113,7 @@
 | [加拿大原神大学.com](https://加拿大原神大学.com) | Simon Fraser University |
 | [加拿大原神大专.com](https://加拿大原神大专.com) | University of Ottawa |
 | [www.米哈游师范大学.com](https://www.米哈游师范大学.com) | 广西师范大学 |
+| [www.广州原神大学.com](https://www.广州原神大学.com) | 广东技术师范大学 | 
 
 ## 联系方式
 
